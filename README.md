@@ -1,0 +1,5 @@
+- 👋 Hi, I’m edward castle
+- 👀 I’m interested in ...medical apps
+- 🌱 I’m currently learning ... medicine
+- 💞️ I’m looking to collaborate on ... medical stuff, i guess
+- 📫 How to reach me ... well, i'd prefer that you don't
